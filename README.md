@@ -18,4 +18,4 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning in NKU
 - 🔭 I’m currently working on *making a dent in the universe*.
 - 📫 How to reach me: hh_lg@qq.com
-- ⚡ Fun fact: So many clones make you a human cloning. Learn by *YOURSELF*.
+- ⚡ Fun fact: So many clones make you *a human cloning*. Make your hands dirty and learn by *YOURSELF*!
